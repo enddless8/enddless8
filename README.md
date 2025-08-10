@@ -25,3 +25,12 @@
                 .=#@@@#*==-==+#%@@%*=.       :+#@@@%*+=--=+#%@@%*-                   
                    :=*#%%@@@%%#*=-.             :=+#%%@@@%%#*+-.                     
                         .....                        .....                          
+
+
+# hello and welcome 
+dis is my github page
+
+ya know am not rlly a programmer and honestly i hate programming
+but i used to program some days ago sooooo... sometimes i still do that... unfortunately...
+
+i got my website for example, here it is: www.e8.world
